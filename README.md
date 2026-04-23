@@ -5,4 +5,4 @@
 <p align="center"> ♦ </p>
 <div align=center><a href="https://foolishfeline.straw.page/"> strawpage</a> , <a href="https://pronouns.cc/@obsta"> pronouncs.cc (wip)</a></div>
 <p align="center"> big fan of persona5, deadlock, marvel, fnaf, various roblox games, pjm, dispatch, playing& having fun </p>
-<p align="center"> hi </p>
+<p align="center"> i don't consider myself in any fandom of my interests </p>
